@@ -1,1 +1,3 @@
 # mibaristondo
+
+Miguel Ibáñez Aristondo is an assistant professor of colonial Latin American literature and culture in the Department of Romance Languages and Literatures at Villanova University. He holds a PhD (2018) in Latin American and Iberian Cultures from Columbia University. Miguel also earned an MA (2009) in Theory of Language and the Arts from the EHESS in Paris and a Licenciatura in French Philology (2007) from the University of the Basque Country (UPV-EHU). Before moving to the United States, Miguel worked as a teaching assistant at the ESCP-Europe (2007-09) in Paris, and as a lecturer in Spanish language in the Institut d’Études Ibériques et Latino-américaines at Paris IV-Sorbonne University (2009-11).
